@@ -8,7 +8,6 @@ I’m continuously exploring new technologies and staying updated with the lates
 - I love public speaking and have participated in international MUNs, where I got the chance to connect with people from all over the world.
 
 ✨ **Let’s connect, learn, and build something awesome together!** ✨
-- **Email**: snehamondal9648@gmail.com
 - **LinkedIn**: www.linkedin.com/in/sneha-mondal-b44142214  
 
 
